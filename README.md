@@ -1,0 +1,1 @@
+# kids_world_static
